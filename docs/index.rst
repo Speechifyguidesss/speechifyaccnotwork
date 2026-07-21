@@ -1,4 +1,4 @@
-How to Fix a Speechify Account Not Working: Complete Troubleshooting Guide
+How to Fix a Speechify Account Not Working: Complete Guide?
 ===========================================================================
 
 If your Speechify account is not working, you're not alone. Many users
